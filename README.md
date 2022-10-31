@@ -5,5 +5,5 @@
 - 🌱 I’m currently learning HTML, CSS, JAVASCRIPT, 
 
 
-Jeune padawanen en devenir..
+Jeune padawan en devenir..
 Mais aussi une lionne aux pattes de FEU 🔥🔥🔥....
